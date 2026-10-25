@@ -20,4 +20,4 @@
 
 ## Автор
 Шалбаев Александр  
-[Telegram](https://t.me/srnonndure) · aldashalbaev@edu.hse.ru
+[Telegram](https://t.me/srnonndure) · alexandershalbaev@gmail.com
